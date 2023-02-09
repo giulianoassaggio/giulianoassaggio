@@ -16,3 +16,8 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 
 -->
+
+- ⚡ Wannabe a Cypherpunk
+- 🔭 Pronto a rendere il mondo un posto libero e migliore
+- 📫 Mi trovate su telegram come "giulianoassaggio1"
+- 📚 Fonder t.me/librilibertari
