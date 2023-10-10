@@ -19,5 +19,5 @@ Here are some ideas to get you started:
 
 - ⚡ Wannabe a Cypherpunk
 - 🔭 Pronto a rendere il mondo un posto libero e migliore, ho intenzione di collaborare, per quanto mio tempo disponibile tenda a zero, alle attivitò divulgative di @ventunobtc
-- 📫 Mi trovate su telegram come "giulianoassaggio1"
-- 📚 Fonder t.me/librilibertari
+- 📫 Mi trovate su telegram come "@giulianoassaggio"
+- 📚 Founder t.me/librilibertari
